@@ -1,16 +1,1 @@
-# github.io
-# kjdsaf
-# github.io
-# kjdsaf
-# github.io
-# kjdsaf
-# github.io
-# kjdsaf
-# github.io
-# kjdsaf
-# github.io
-# kjdsaf
-# github.io
-# kjdsaf
-# github.io
-# kjdsaf
+# "Никогда не сдавайтесь, идите к своей цели! А если будет сложно – сдавайтесь." © Джейсон Стейтем 
